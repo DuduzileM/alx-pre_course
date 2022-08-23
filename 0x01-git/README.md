@@ -1,1 +1,1 @@
-me and i, wow awesome stuff 
+me and i, awesome stuff 
